@@ -1,4 +1,4 @@
-# portfolio
+# PORTFOLIO
 
 
 I am Muskanpreet kaur. I have one year experience in cooking in indian restaurant. Iike to do my job with full
